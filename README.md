@@ -13,5 +13,5 @@ my data science and analytics projects
 reach out to me at email
 
 ## Image
-![Alt text](https://github.com/user-attachments/assets/1d2f32e4-5093-4abc-a0b0-9f06c594211a)
+![Marckris](https://github.com/user-attachments/assets/1d2f32e4-5093-4abc-a0b0-9f06c594211a)
 
